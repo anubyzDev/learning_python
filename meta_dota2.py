@@ -1,0 +1,1 @@
+#Treinando dicionário enquanto reformulo meus meta picks baseado no meta de Dota 2
